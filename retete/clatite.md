@@ -1,0 +1,5 @@
+Clatite
+
+lapte
+oua
+faina
